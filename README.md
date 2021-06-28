@@ -2,5 +2,5 @@ São 18:50 do dia 28 de Julho de 2021 e o curso do Gama Academy é bem desafiado
 assim como eu. A palavra é persistência! Sempre procurem no Google qualquer problema que tenham
 em qualquer parte do curso.
 
-Com muita dedeicação iremos ser os 300!!!
+Com muita dedicação iremos ser os 300!!!
 
